@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @24edgardo
 - 👀 I’m interested in ... create solid links
-- 🌱 I’m currently learning ... how to use my skils to achieve as an foreign   
+- 🌱 I’m currently learning ... how to use my skills to achieve as an foreign   
 - 💞️ I’m looking to collaborate on ...startups, launches, good/service design 
-- 📫 How to reach me ... direct message to @therealkiddo.ed > Instagram o email
+- 📫 How to reach me ... direct message to @therealkiddo.ed > Instagram o email to ed.aparicio95@icloud.com
 - 😄 Pronouns: ... adjectives, prepositions etc, i also love poetry
 - ⚡ Fun fact: ... not rn
 
